@@ -7,7 +7,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini
 Seru! banyak pengetahuan baru seputar departemen dan yang lainnya.
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini
+## Kesan Pesan Cluster 2 Sejauh Ini
 Cluster 2 seru bgt! dan Kakak-kakaknya membantu banget!
 
 ## Harapan Kuliah
