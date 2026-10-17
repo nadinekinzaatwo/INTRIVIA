@@ -9,3 +9,6 @@ Seru! banyak pengetahuan baru seputar departemen dan yang lainnya.
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini
 Cluster 2 seru bgt! dan Kakak-kakaknya membantu banget!
+
+## Harapan Kuliah
+Lancar, nilai bagus, IPK tinggi, dapat dosen baik hati, lingkungan positif, dan banyak lagi
